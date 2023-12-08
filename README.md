@@ -1,4 +1,3 @@
-
 # 8-12_9-1
 Chto to krutoe napisal no ne pro B††
 
